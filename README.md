@@ -112,3 +112,4 @@ Soft Skills
 - Adaptabilidad → trabajo en entornos cambiantes e internacionales  
 
 Pueden ponerse en contacto via e-mail: oscarramirez649@gmail.com
+Y mi perfil de Linked in www.linkedin.com/in/oscar-alejandro-ramírez-vergara-679992171
